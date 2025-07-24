@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Hiury 😁
+## Bem-vindo(a) ao perfil do Hiury 👋🏽
 
  <div>
    <a href="https://github.com/Hi-Ury">
